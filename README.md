@@ -1,1 +1,1 @@
-BIO: Besim Ibrahimi nga qyteti i Mitrovicë
+BIO: Besim Ibrahimi nga qyteti i Mitrovicës
